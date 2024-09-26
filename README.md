@@ -1,1 +1,1 @@
-# Codevita-Team31-Project-EDU-GATHERon-
+# Codevita-Team31-Project On-EDU-GATHER
